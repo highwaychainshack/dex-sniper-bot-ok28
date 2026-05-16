@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with rare dex sniper bot Plugin | front-running-detection + staking-integration, the #1 dex sniper bot. Includes front-running-detection and
 
 
 
